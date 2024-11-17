@@ -1,0 +1,1 @@
+# wmtPredictStock2025
